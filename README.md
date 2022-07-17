@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @TheBraveBobo
-- 👀 I’m interested in ???
-- 🌱 I’m currently learning how to Lore
-- 💞️ I’m looking to collaborate on Stuff
+
 - 📫 How to reach me Dont
